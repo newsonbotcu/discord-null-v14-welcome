@@ -11,7 +11,7 @@
 
 # Star Ve Fork Hakkında
 
-- moralim bozu veya kendimi kötü hissedince atarım.
+- moralim bozuk veya kendimi kötü hissedince atarım.
 
 # SSS
 
